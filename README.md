@@ -3,4 +3,5 @@
 
 ✧ ﹏ ' Ah, totally a normal Korekiyo Shinguji admirer ｡ 
 
+✧ ｡ ‿ Reminder. I said admirer, not an irl. I never said I am him PLEASE know the difference. 
 
